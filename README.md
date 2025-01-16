@@ -1,1 +1,1 @@
-"# settings" 
+"# THIS FOR MY FRKN DISCORD FRKN THEME MF." 
